@@ -1,2 +1,0 @@
-Azarenko Elena
-Oliver Sykes
